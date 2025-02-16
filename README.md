@@ -7,7 +7,9 @@ Giggles, info!!
 
 +lesbian _ aroace _ lithromantic 
 
+
 ꘎♡━━━━━♡꘎
+
 
 < status_meanings...  > 
 
@@ -21,11 +23,15 @@ away: one of my main statuses, interaction is 100% welcome! i'll try to respond 
 
 busy: if i use this im probably either off-tab and busy, or im in a very bad and sobbing mood.
 
+
 ꘎♡━━━━━♡꘎
+
 
 note: my name mirrors my character sometimes, my set names (xeno, crumb, etc..) are more-so optional, so call me whatever! (wether the characters name, the names i put or whatever you think of!)
 
+
 ‿︵‿︵୨˚̣̣̣͙୧ - - ୨˚̣̣̣͙୧‿︵‿︵ 
+
 
 ART BY ME!
 
